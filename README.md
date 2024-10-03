@@ -1,1 +1,1 @@
-![1665801232208_waifu2x_noise0_scale2x](https://github.com/user-attachments/assets/bb983313-2ad3-4f0d-ae92-216af0d3ea59)
+![bg](https://github.com/Bluiyui/discordbg/blob/b054f0c4e152e3c382a1dda5e5f683e92177e93e/1665801232208_waifu2x_noise0_scale2x.png)
